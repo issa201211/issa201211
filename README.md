@@ -3,4 +3,4 @@
 - 🌱 I’m currently learning also hacking
 - 📫 How to reach me reach for me by not reaching for me :)
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: i finshed python and html
+- ⚡ Fun fact:im part of a anon group
