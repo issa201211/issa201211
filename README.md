@@ -1,0 +1,6 @@
+- 👋 Hi, I’m brako
+- 👀 I’m interested in hacking
+- 🌱 I’m currently learning also hacking
+- 📫 How to reach me reach for me by not reaching for me :)
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: i finshed python and html
